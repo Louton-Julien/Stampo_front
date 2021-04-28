@@ -1,0 +1,1 @@
+# Stampo_front
